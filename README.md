@@ -1,2 +1,0 @@
-# Vaishali-Mandhare
-Training
